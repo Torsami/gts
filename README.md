@@ -1,2 +1,2 @@
 # gts
-Gindiri Theological Seminary
+Gindiri Theological Seminary, Gindiri
